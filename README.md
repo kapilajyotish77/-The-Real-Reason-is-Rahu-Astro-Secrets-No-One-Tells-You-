@@ -30,3 +30,6 @@ Rahu hamesha shortcuts, lying, aur sneaky cheating ki taraf attract karta hai. B
 🎯 SEO Keywords Checklist (Hidden Metadata for Ranking):
 •	Primary Keywords: Rahu remedies, Rahu mahadasha effects, negative Rahu effects, astrology remedies for Rahu.
 •	Secondary Keywords: Sudden wealth in astrology, internet addiction solutions, Rahu in Vedic astrology, how to control Rahu, Rahu transit impact.
+kapali Jyotish
++91 9953243622
+https://kapalijyotish77.netlify.app/ 
